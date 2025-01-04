@@ -1,3 +1,3 @@
 # Крамар Денис Олексійович
 
-**Email**: [deniskramar07@gmail.com]
+**Email**: ipz243_kdo@student.ztu.edu.ua
